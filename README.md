@@ -210,4 +210,4 @@ Civilization V is available as a **full free version** with all features and upd
 Download Civilization V now and dive into one of the most celebrated strategy games of all time! Enjoy the full gaming experience today!
 
 ---
-**Last updated:** 2026-10-25 05:54:46 UTC
+**Last updated:** 2026-10-25 11:05:25 UTC
